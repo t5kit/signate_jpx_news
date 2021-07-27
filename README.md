@@ -1,0 +1,1 @@
+# signate_jpx_news
